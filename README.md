@@ -4,7 +4,7 @@ Shiatsu & Flowers aims to make basic Shiatsu practice (Shiatsu) and creative con
 
 By means of single sessions, workshops and podcast series (to be announced) I contribute to the development of a healthy and balanced environment with the individual at it's centre. 
 
-I believe in the equality of all beings and a holistic, mind altering approach as key towards a our future worth living. 
+I believe in the equality of all beings and a holistic, mind altering approach as key towards a future worth living. 
 
 ### Shiatsu
 
