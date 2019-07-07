@@ -1,12 +1,12 @@
-## Welcome to Shiatsu & Flowers
+## Bringing Shiatsu & Flowers
 
-You can use the [editor on GitHub](https://github.com/tringular/basic/edit/master/README.md) to maintain and preview the content for your website in Markdown files.
+Here is space where I can create some content. 
 
-Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
+What is the purpose of Shiatsu & Flowers?
 
-### Markdown
+### Shiatsu
 
-Markdown is a lightweight and easy-to-use syntax for styling your writing. It includes conventions for
+### can i create a second mark down here?
 
 ```markdown
 Syntax highlighted code block
