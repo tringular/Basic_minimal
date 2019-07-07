@@ -1,12 +1,15 @@
 ## Bringing Shiatsu & Flowers - by Mirja Bastian
 
-Shiatsu & Flowers aims to make basic Shiatsu practice and conversation accessible to everyone.
+Shiatsu & Flowers aims to make basic Shiatsu practice (Shiatsu) and creative conversation (Flowers) accessible to everyone.
 
-By means of single sessions, workshops and a podcast series (to be announced) we contribute to the development of a healthy and balanced environment with the individual at it's centre. 
+By means of single sessions, workshops and podcast series (to be announced) I contribute to the development of a healthy and balanced environment with the individual at it's centre. 
 
 ### Shiatsu
 
-Shiatsu is a gentle
+Shiatsu is a flowing massage originating in Japan that has positive effects on your wellbeing by balancing your energy system. 
+
+
+
 
 ### Flowers
 
