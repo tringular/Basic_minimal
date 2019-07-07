@@ -18,6 +18,9 @@ You may book your session sending an e-mail to me@mirja.biz .
 
 ### Flowers
 
+Flowers stand for creative stories and conversations. By our language we create our future, so we talk about and in ways that mark a positive outlook. 
+
+Yet to come I am conducting workshops and podcasts around the topics health, society and the environment.
 
 ### About me
 
