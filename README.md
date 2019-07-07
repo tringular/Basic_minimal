@@ -1,12 +1,14 @@
-## Bringing Shiatsu & Flowers
+## Bringing Shiatsu & Flowers - by Mirja Bastian
 
-Here is space where I can create some content. 
+Shiatsu & Flowers aims to make basic Shiatsu practice and conversation accessible to everyone.
 
-What is the purpose of Shiatsu & Flowers?
+By means of single sessions, workshops and a podcast series (to be announced) we contribute to the development of a healthy and balanced environment with the individual at it's centre. 
 
 ### Shiatsu
 
-### can i create a second mark down here?
+Shiatsu is a gentle
+
+### Flowers
 
 ```markdown
 Syntax highlighted code block
