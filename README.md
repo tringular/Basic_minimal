@@ -4,7 +4,7 @@ Shiatsu & Flowers aims to make basic Shiatsu practice (Shiatsu) and creative con
 
 By means of single sessions, workshops and podcast series (to be announced) I contribute to the development of a healthy and balanced environment with the individual at it's centre. 
 
-I believe in the equality of all beings and a holistic, mind and body altering approach towards a future worth living for all of us.
+I believe in the equality of all beings and a holistic, mind altering approach as key towards a our future worth living. 
 
 ### Shiatsu
 
@@ -12,7 +12,14 @@ Shiatsu is a flowing massage originating in Japan that has positive effects on y
 
 In a regular Shiatsu session your body receives treatment by means of the practitioner's weight through her palms and thumbs. Depending on your individual need the treatment may work from your surfacing tissues deep into your subconscious mind, thereby helping to heal what needs to be healed.
 
+Each treatment is unique and evolves during the session. 
+
+You may book your session sending an e-mail to me@mirja.biz . 
+
 ### Flowers
+
+
+### About me
 
 ```markdown
 Syntax highlighted code block
