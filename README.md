@@ -14,7 +14,8 @@ In a regular Shiatsu session your body receives treatment by means of the practi
 
 Each treatment is unique and evolves during the session. 
 
-You may book your session sending an e-mail to me@mirja.biz . 
+You may pay what you can or want (recommendation: 45 EUR per 60 minutes). 
+Book your session sending an e-mail to me@mirja.biz . 
 
 ### Flowers
 
