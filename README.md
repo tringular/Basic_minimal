@@ -8,7 +8,7 @@ I believe in the equality of all beings and a holistic, mind altering approach a
 
 ### Shiatsu
 
-Shiatsu is a flowing massage originating in Japan that has positive effects on your wellbeing by balancing your energy system. 
+Shiatsu is a flowing massage originating in Japan. It has positive effects on your wellbeing by balancing your energy system. 
 
 In a regular Shiatsu session your body receives treatment by means of the practitioner's weight through her palms and thumbs. Depending on your individual need the treatment may work from your surfacing tissues deep into your subconscious mind, thereby helping to heal what needs to be healed.
 
