@@ -32,7 +32,7 @@ To arrange a session with me send an e-mail to me@mirja.biz
 
 ### About
 
-After kick-starting a meaningless carreer I was increasingly caught by a subtle feeling of sorrow and unconsciouness to a point where I had to stop to figure out what I am willing to actively drive forward in my life and in the lives of others. Since that time I am practicing Shiatsu and thereby learned about the ego as the center of command, control and judgement in each of us as individuals and in our society. I began to believe, that the ego is the trouble-maker and needs healing. The school unfolded a spiritual growth path and changed the way I am interacting in my personal and business relationships in my job as a consultant and people lead.
+After kick-starting a meaningless carreer I was increasingly caught by a subtle feeling of sorrow and unconsciouness to a point where I had to stop to figure out what I am willing to actively drive forward in my life and in the lives of others. Since that time I am practicing Shiatsu and thereby learned about the ego as the center of command, control and judgement in each of us as individuals and in our society. I began to believe, that the ego is the trouble-maker and needs healing. The school unfolded a spiritual growth path and changed the way I am  thinking and interacting in my personal and business relationships in my job as a consultant and people lead in a positive way.
 
 ```markdown
 Syntax highlighted code block
