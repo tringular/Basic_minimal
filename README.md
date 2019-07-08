@@ -2,20 +2,10 @@
 
 ## Idea & Manifestation
 
-Sternstunden make basic _Shiatsu practice, creative workshops and podcasts accessible to everyone_, thereby contibuting to a _healthy and balanced environment_ with the _individual at it's centre_. 
+Sternstunden make basic Shiatsu practice, creative workshops and podcasts accessible to everyone, thereby contibuting to a _healthy and balanced environment_ with the _individual at it's centre_. 
 
-Sternstunden builds on the equality of all beings. The growth of our consciousness with our bodies and speech as vehicles to the outside world, give us the opportunity to create a pluralistic future that is worth living. Therefore, Sternstunden combine themes of modern society with spiritual practice. 
-
-### Shiatsu
-
-Shiatsu is a flowing massage originating in Japan. It has positive effects on wellbeing by balancing the energy system. 
-
-In a Shiatsu session the client receives treatment by means of the practitioner's weight through her palms and thumbs. Depending on individual needs the treatment works from the surfacing tissues deep into the subconscious mind, thereby helping to heal what needs to be healed.
-
-Each treatment is unique and evolves during the session. 
-
-You may pay what you can or want (recommendation: 45 EUR per 60 minutes). 
-To arrange a session with me send an e-mail to me@mirja.biz 
+The growth of our consciousness with our bodies and speech as vehicles to the outside world, give us the opportunity to create a pluralistic future that is worth living. 
+Sternstunden combine converstions about modern society with shiatsu practice. 
 
 ### Conversations
 
@@ -29,7 +19,18 @@ Topics of interest
 - **GROWTH** degrowth, zero growtn, spiritual growth, growth mindset, enabling technology
 - ...
 
-### ABOUT MIRJA
+### Shiatsu
+
+Shiatsu is a flowing massage originating in Japan. It has positive effects on wellbeing by balancing the energy system. 
+
+In a Shiatsu session the client receives treatment by means of the practitioner's weight through her palms and thumbs. Depending on individual needs the treatment works from the surfacing tissues deep into the subconscious mind, thereby helping to heal what needs to be healed.
+
+Each treatment is unique and evolves during the session. 
+
+You may pay what you can or want (recommendation: 45 EUR per 60 minutes). 
+To arrange a session with me send an e-mail to me@mirja.biz 
+
+### About
 
 After kick-starting a meaningless carreer I was increasingly caught by a subtle feeling of sorrow and unconsciouness to a point where I had to stop to figure out what I am willing to actively drive forward in my life and in the lives of others. Since that time I am practicing Shiatsu and thereby learned about the ego as the center of command, control and judgement in each of us as individuals and in our society. I began to believe, that the ego is the trouble-maker and needs healing. The school unfolded a spiritual growth path and changed the way I am interacting in my personal and business relationships in my job as a consultant and people lead.
 
