@@ -1,22 +1,17 @@
 # Sternstunden
 
-## Idea
+## Idea & Manifestation
 
-Processes of stopping, pausing and sustaining 
+Sternstunden make basic Shiatsu practice and creational conversations accessible to everyone.
+In single sessions, workshops and podcast series Sternstunden contribute to the development of a healthy and balanced environment with the individual at it's centre. 
 
-I believe in the equality of all beings and a holistic, body and mind altering approach as key towards a future worth living. 
-
-## Manifestation
-
-Sternstunden make basic Shiatsu practice and creative conversation accessible to everyone.
-
-By means of single sessions, workshops and podcast series to listen to (coming sson) I contribute to the development of a healthy and balanced environment with the individual at it's centre. 
+Sternstunden builds on the equality of all beings. The of growth of consciousness with body and speech as vehicles to the outside world, is key to create a pluralistic future that is worth living. Therefore, Sternstunden combine themes of modern society with spiritual practice. 
 
 ### Shiatsu
 
 Shiatsu is a flowing massage originating in Japan. It has positive effects on your wellbeing by balancing your energy system. 
 
-In a regular Shiatsu session your body receives treatment by means of the practitioner's weight through her palms and thumbs. Depending on your individual need the treatment works from your surfacing tissues deep into your subconscious mind, thereby helping to heal what needs to be healed.
+In a Shiatsu session your body receives treatment by means of the practitioner's weight through her palms and thumbs. Depending on your individual need the treatment works from your surfacing tissues deep into your subconscious mind, thereby helping to heal what needs to be healed.
 
 Each treatment is unique and evolves during the session. 
 
@@ -27,17 +22,18 @@ To arrange a session with me send an e-mail to me@mirja.biz
 
 By our language we create our future. 
 
-Under this premise and yet to come I facilitate conversations around topics from our ecosystem in workshops and podcasts to develop stories that make an impact towards a healthy society.
+Under this premise and yet to come Sternstunden facilitate conversations around topics from modern society in workshops and podcasts to develop stories that make an impact. 
 
 Topics of interest 
-- **PEOPLE** spiral dynamics, collaboration in the 21st century, behavioral economics
+- **PEOPLE** ecosystems, collaboration in the 21st century, behavioral economics
 - **LANGUAGE** mind over matter, collective consciousness, media
-- **GROWTH** degrowth, zero growtn, spiritual growth, growth mindset enabling technology
+- **GROWTH** degrowth, zero growtn, spiritual growth, growth mindset, enabling technology
 - ...
 
-### About me
+### ABOUT MIRJA
 
-After a few years starting a meaningless carreer there came a period of increasing, subtle sorrow to a point where I had to stop for six months to find what is essential in my life. Since that time I am practicing Shiatsu and thereby learned about my ego as the command, control and judge center of our bodies and minds. The school has changed me in how I interact in day-to-day as well as 
+After kick-starting a meaningless carreer I was increasingly caught by a subtle feeling of sorrow and unconsciouness to a point where I had to stop to figure out what I am willing to actively drive forward in my life and in the lives of others. Since that time I am practicing Shiatsu and thereby learned about the ego as the center of command, control and judgement in each of us as individuals and in our society. I began to believe, that the ego is the trouble-maker and needs healing. The school unfolded a spiritual growth path and changed the way I am interacting in my personal and business relationships in my job as a consultant and people lead.
+
 ```markdown
 Syntax highlighted code block
 
