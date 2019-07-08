@@ -1,34 +1,43 @@
-## Bringing Shiatsu & Flowers - by Mirja Bastian
+# Sternstunden
 
-Shiatsu & Flowers aims to make basic Shiatsu practice (Shiatsu) and creative conversation (Flowers) accessible to everyone.
+## Idea
 
-By means of single sessions, workshops and podcast series (to be announced) I contribute to the development of a healthy and balanced environment with the individual at it's centre. 
+Processes of stopping, pausing and sustaining 
 
-I believe in the equality of all beings and a holistic, mind altering approach as key towards a future worth living. 
+I believe in the equality of all beings and a holistic, body and mind altering approach as key towards a future worth living. 
+
+## Manifestation
+
+Sternstunden make basic Shiatsu practice and creative conversation accessible to everyone.
+
+By means of single sessions, workshops and podcast series to listen to (coming sson) I contribute to the development of a healthy and balanced environment with the individual at it's centre. 
 
 ### Shiatsu
 
 Shiatsu is a flowing massage originating in Japan. It has positive effects on your wellbeing by balancing your energy system. 
 
-In a regular Shiatsu session your body receives treatment by means of the practitioner's weight through her palms and thumbs. Depending on your individual need the treatment may work from your surfacing tissues deep into your subconscious mind, thereby helping to heal what needs to be healed.
+In a regular Shiatsu session your body receives treatment by means of the practitioner's weight through her palms and thumbs. Depending on your individual need the treatment works from your surfacing tissues deep into your subconscious mind, thereby helping to heal what needs to be healed.
 
 Each treatment is unique and evolves during the session. 
 
-```markdown
 You may pay what you can or want (recommendation: 45 EUR per 60 minutes). 
-Book your session sending an e-mail to me@mirja.biz . 
-```
+To arrange a session with me send an e-mail to me@mirja.biz 
 
-### Flowers
+### Conversations
 
-Flowers stand for creative stories and conversations. By our language we create our future, so we talk about and in ways that mark a positive outlook. 
+By our language we create our future. 
 
-```markdown
-Yet to come I am conducting workshops and podcasts around the topics health, society and the environment.
-```
+Under this premise and yet to come I facilitate conversations around topics from our ecosystem in workshops and podcasts to develop stories that make an impact towards a healthy society.
+
+Topics of interest 
+- **PEOPLE** spiral dynamics, collaboration in the 21st century, behavioral economics
+- **LANGUAGE** mind over matter, collective consciousness, media
+- **GROWTH** degrowth, zero growtn, spiritual growth, growth mindset enabling technology
+- ...
 
 ### About me
 
+After a few years starting a meaningless carreer there came a period of increasing, subtle sorrow to a point where I had to stop for six months to find what is essential in my life. Since that time I am practicing Shiatsu and thereby learned about my ego as the command, control and judge center of our bodies and minds. The school has changed me in how I interact in day-to-day as well as 
 ```markdown
 Syntax highlighted code block
 
