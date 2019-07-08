@@ -5,7 +5,7 @@
 Sternstunden make basic Shiatsu practice and creational conversations accessible to everyone.
 In single sessions, workshops and podcast series Sternstunden contribute to the development of a healthy and balanced environment with the individual at it's centre. 
 
-Sternstunden builds on the equality of all beings. The of growth of consciousness with body and speech as vehicles to the outside world, is key to create a pluralistic future that is worth living. Therefore, Sternstunden combine themes of modern society with spiritual practice. 
+Sternstunden builds on the equality of all beings. The growth of our consciousness with our bodies and speech as vehicles to the outside world, is key to create a pluralistic future that is worth living. Therefore, Sternstunden combine themes of modern society with spiritual practice. 
 
 ### Shiatsu
 
