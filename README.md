@@ -2,16 +2,15 @@
 
 ## Idea & Manifestation
 
-Sternstunden make basic Shiatsu practice and creational conversations accessible to everyone.
-In single sessions, workshops and podcast series Sternstunden contribute to the development of a healthy and balanced environment with the individual at it's centre. 
+Sternstunden make basic _Shiatsu practice, creative workshops and podcasts accessible to everyone_, thereby contibuting to a _healthy and balanced environment_ with the _individual at it's centre_. 
 
-Sternstunden builds on the equality of all beings. The growth of our consciousness with our bodies and speech as vehicles to the outside world, is key to create a pluralistic future that is worth living. Therefore, Sternstunden combine themes of modern society with spiritual practice. 
+Sternstunden builds on the equality of all beings. The growth of our consciousness with our bodies and speech as vehicles to the outside world, give us the opportunity to create a pluralistic future that is worth living. Therefore, Sternstunden combine themes of modern society with spiritual practice. 
 
 ### Shiatsu
 
-Shiatsu is a flowing massage originating in Japan. It has positive effects on your wellbeing by balancing your energy system. 
+Shiatsu is a flowing massage originating in Japan. It has positive effects on wellbeing by balancing the energy system. 
 
-In a Shiatsu session your body receives treatment by means of the practitioner's weight through her palms and thumbs. Depending on your individual need the treatment works from your surfacing tissues deep into your subconscious mind, thereby helping to heal what needs to be healed.
+In a Shiatsu session the client receives treatment by means of the practitioner's weight through her palms and thumbs. Depending on individual needs the treatment works from the surfacing tissues deep into the subconscious mind, thereby helping to heal what needs to be healed.
 
 Each treatment is unique and evolves during the session. 
 
