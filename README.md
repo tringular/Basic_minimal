@@ -2,10 +2,10 @@
 
 ## Idea & Manifestation
 
-Sternstunden make basic Shiatsu practice, creative workshops and podcasts accessible to everyone, thereby contibuting to a _healthy and balanced environment_ with the _individual at it's centre_. 
+Sternstunden make basic Shiatsu practice, creative workshops and podcasts accessible to everyone, thereby contributing to a _healthy and balanced environment_ with the _individual at it's centre_. 
 
 The growth of our consciousness with our bodies and speech as vehicles to the outside world, give us the opportunity to create a pluralistic future that is worth living. 
-Sternstunden combine converstions about modern society with shiatsu practice. 
+Sternstunden takes this opportunity by offering conversations about modern society and shiatsu practice. 
 
 ### Conversations
 
